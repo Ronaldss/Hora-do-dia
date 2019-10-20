@@ -7,3 +7,4 @@ perder com classe
 e vencer com ousadia,
 porque o mundo pertence a quem se atreve
 e a vida é muito para ser insignificante.
+Por Ronald.
